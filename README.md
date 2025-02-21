@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **anujahkhanaj2003@gmail.com**
 
-- ⚡ Fun fact **I am techy girl who also loves to read offlibooks.**
+- ⚡ Fun fact **I am techy girl who also loves to read offline books.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
